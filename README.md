@@ -1,3 +1,3 @@
 - 👋 Hi, I’m @sonu07-star
-- 👀 I’m interested in anything until it becomes bored to me
+- 👀 I’m interested in anything until it becomes bored to me hihihihihi
 - 🌱 I’m currently learning nothing i'm just exploring new things
