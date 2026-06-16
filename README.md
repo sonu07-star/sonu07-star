@@ -1,6 +1,6 @@
 <div align="center">
 
-# Hey, I'm Sonu
+# Hey, I'm Harshith
 
 ### I build practical security tools, privacy-first browser extensions, and useful automations.
 
